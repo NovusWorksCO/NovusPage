@@ -1,2 +1,0 @@
-# NovusPage
-Página oficial NovusWorksCo
